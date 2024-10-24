@@ -1,3 +1,6 @@
+![Alt Text](https://github.com/Kaushik2304/Kaushik2304/blob/main/user.gif)
+
+
 ## Hi there 👋
 
 # Welcome to My GitHub!
